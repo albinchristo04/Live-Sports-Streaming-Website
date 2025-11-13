@@ -9,3 +9,8 @@ HD quality streaming
 Multi-sport support
 Adsemse Auto Approval
 
+
+Ready to Purchase?
+Contact me to get access to these premium platforms
+
+https://t.me/Broken_deejay_off
